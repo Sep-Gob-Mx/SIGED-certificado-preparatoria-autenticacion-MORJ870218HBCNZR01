@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MORJ870218HBCNZR01
+MORJ870218HBCNZR01
